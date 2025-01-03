@@ -1,5 +1,5 @@
 
-Aviva Bidapa: Wiki, Bio, Age, and Net Worth (2024)
+Aviva Bidapa: Wiki, Bio, Age, and Net Worth
 ==================================================
 
 Who is Aviva Bidapa?
